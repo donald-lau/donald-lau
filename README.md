@@ -1,6 +1,4 @@
-## Donald:duck: to Earth :earth_asia: `<>Hello world!</>`
-
-
+## Donald:duck: to Earth
 
 > *Earth without art is just Eh  -  internet*
 
