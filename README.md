@@ -4,7 +4,7 @@
 
 > *Programming without art is just ... maths  -  me*
 
-Helu, artist in disguise of tech geek here🎨. Been a software engineer and data analyst, I am currently acting as a system engineer at [@Maersk](https://www.maersk.com/). Remember to always look for a creative solution!
+Helu, artist in disguise of tech geek here🎨. Remember to always look for a creative solution!
 
 
 
